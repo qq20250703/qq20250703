@@ -31,7 +31,7 @@
 总结
 如果你在找日本AV免费的在线观看平台，这些网站能满足你的需求，不仅免费视频，而且更新及时，播放流畅。赶快选择一个平台，享受你喜欢的影片吧！
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/qq20250703/qq20250703）</span>
 
 
 
